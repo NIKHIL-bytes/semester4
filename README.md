@@ -1,2 +1,4 @@
-# semester4
+##SEMESTER 4##
 ...
+
+#I DONT KNOW WHAT I AM DOING #
